@@ -1,0 +1,1 @@
+Ever since AI has made its way into the workplace it has revolutionized how work is done. Workplace AI had greatly affected not only how work is done but it has greatly affected employee well being. My project is about finding the affects of Artificial Intelligence on the workplace.
